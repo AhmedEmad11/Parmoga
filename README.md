@@ -1,4 +1,4 @@
-# Bromoga
+# Parmoga
 i am in the new levels, i keep my cool better
 just copped a new crib because the pool better
 just got a private flight, that mean i flew better
